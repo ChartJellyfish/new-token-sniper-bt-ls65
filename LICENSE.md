@@ -1,4 +1,4 @@
-# 
+# top bot sniper MEV executor é o melhor bot sniper MEV executor com oportunidades de arbitragem e detecção de honeypots. Seguro, confiável e otimizado para estratégias MEV, sniper
 
 
 
